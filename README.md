@@ -1,0 +1,1 @@
+chai or tea throws light on the Indian culture. The brown coloured hot beverage is frequently consumed especially in India.
